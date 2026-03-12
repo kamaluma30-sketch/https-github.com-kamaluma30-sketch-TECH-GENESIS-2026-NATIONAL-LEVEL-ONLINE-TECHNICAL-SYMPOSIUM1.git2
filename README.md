@@ -1,0 +1,1 @@
+# https-github.com-kamaluma30-sketch-TECH-GENESIS-2026-NATIONAL-LEVEL-ONLINE-TECHNICAL-SYMPOSIUM1.git2
